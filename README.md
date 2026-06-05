@@ -2,8 +2,6 @@
 
 M.Sc. Student in Sports Technology & Engineering at the University of Bayreuth, graduating in 2026.
 
-Sports tech student by day. Competitive MTB rider also by day. Coder somewhere in between.
-
 
 
 --- 
